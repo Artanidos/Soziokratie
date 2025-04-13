@@ -40,7 +40,7 @@ Wirklich unmöglich?
 Oder gibt es da eventuell doch eine Möglichkeit?  
 
 ## Kreise
-Man sitzt zusammen in einem Kreis, jeder darf dabei mitmachen und es gibt einen Redestab. Dieser Redestab geht rei um, so dass ihn jeder in dieser Runde mal in die Hand bekommt und wenn er ihn hat, hören alle anderen nur zu. 
-Denn das ist die Regel. Nur wer den Redestab hält, darf reden. Hat er seine Meinung kund getan, so gibt er den Stab an den, der links von ihm sitzt weiter. Es ist natürlich darauf zu achten, das niemand den Stab länger als eine bestimmte Zeit hält. Auch sind Zwischenrufe und sogar negative Äusserungen unerwünscht. Lediglich ein Zuspruch mit dem Wort "Aho" ist gestattet.
+Man sitzt zusammen in einem Kreis, jeder darf dabei mitmachen und es gibt einen Redestab. Dieser Redestab geht rei um, so dass ihn jeder in dieser Runde mal in die Hand bekommt und wenn er ihn hat, hören alle anderen nur zu.   
+Denn das ist die Regel. Nur wer den Redestab hält, darf reden. Hat er seine Meinung kund getan, so gibt er den Stab an den, der links von ihm sitzt weiter. Es ist natürlich darauf zu achten, das niemand den Stab länger als eine bestimmte Zeit hält. Auch sind Zwischenrufe und sogar negative Äusserungen unerwünscht. Lediglich ein Zuspruch mit dem Wort "Aho" ist gestattet.  
 In so einem Kreis wenn er denn eine bestimmte Mindesgrösse von sagen wir mal 7 Menschen und eine bestimmte Maximalgrösse von sagen wir mal 13 Menschen hat, kann dann Konsensus entstehen, wenn sich alle einig sind. Konsensus ist dann gegeben, wenn der Redestab eine komplette Runde macht, ohne das jemand etwas hinzuzufügen hat. Sind in einer Gruppe mehr als 13 Menschen, so werden zwei Kreise gebildet.
-Aus einem Kreis mit 14 Menschen wird dann zwei Kreise a 7 Menschen gemacht.  
+Aus einem Kreis mit 14 Menschen wird dann zwei Kreise a 7 Menschen gemacht.    
