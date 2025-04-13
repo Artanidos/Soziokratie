@@ -8,17 +8,17 @@ Dann versuchen sie etwas zu ändern, scheitern aber daran, das bereits zu viele,
 Wir dulden also erstmal, das es so ist, wie es ist.  
 Dann sind wir selber erwachsen und geben das selbe Verhalten an unsere Kinder weiter und es geth so weiter und so weiter.  
 
-Wir haben Demokratie.  
+Wir haben **Demokratie**.  
 Eigentlich eine faire Sache.  
 Bis man mal überstimmt wurde, weil es da auch Medien gibt, die den Menschen eine bestimmte Meinung aufdrücken.  
 Diese Medien werden bezahlt von Menschen, die viel Geld haben.  
 Und da sie viel geld haben, haben sie derzeit in gerade dieser Demokratie viel Macht.  
 
-Wir haben die Diktatur.  
+Wir haben die **Diktatur**.  
 Auch nicht viel besser.  
 Da hat sich jemand wohlmöglich mit Waffengewalt an die Spitze gesetzt und regiert über die anderen.  
 
-Und wir haben den Kommunismus.  
+Und wir haben den **Kommunismus**.  
 Da würde ich mal sagen, weil ich den aus der DDR kenne, das das so eine Mischung aus Demokratie und Diktatur ist.  
 Da sind halt mehrere statt nur einer an der Macht, aber eigentlich ist es Diktatur.  
 
