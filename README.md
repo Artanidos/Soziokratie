@@ -33,7 +33,7 @@ Etwas wo alle auf Augenhöhe sind.
 Etwas wo Konsensus im Kreis beschlossen wird.  
 Wo alle Anwesenden dafür sind.  
 Wo nach einer Runde niemand aufsteht und sagt, die haben über uns bestimmt, ohne uns angehört zu haben.  
-Das nennt sich Sozikratie.  
+Das nennt sich **Sozikratie**.  
 
 Aber soetwas im jetzigen System umzusetzen ist unmöglich.  
 Wirklich unmöglich?  
